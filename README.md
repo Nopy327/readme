@@ -5,4 +5,5 @@ alright well,
 
 Interests: <br>#1 Animating (MMD, SFM, Garry's mod, Blender) <br>#2 Language learning (Duolingo, Youtube) <br>#3 Coding (Website making, Game making, Hacking) <br>#4 Psychology (psychology of supermarkets is a must watch video 100% (≧∇≦)ﾉ ) <br>#5 Martial-arts (Kung fu)
 <br>
-if i feel bad, i usually do something silly like play video games or watch anime. thats rare tho. i enjoy learning/growing more than playing games.
+<br>
+if i feel bad, i usually do something silly like play video games or watch anime. thats rare tho. <br>i enjoy learning/growing more than playing games.
