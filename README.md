@@ -1,4 +1,4 @@
-im surprised u actually clicked on my readme.md, how funny, you can tell that i dont know how to make it appear big on my profile oh well.<br>
+im surprised that you actually clicked on my readme.md, how funny, you can tell that i dont know how to make it appear big on my profile oh well.<br>
 im guessing you want something from me then,
 
 alright well,
